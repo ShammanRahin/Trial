@@ -1,3 +1,3 @@
 # Trial
 <br>
-Trying to learn some shit man 
+Trying to learn some shit man fck 
